@@ -1,1 +1,1 @@
-we the people of india having solomonly resoilve the constitue into sovergen 
+we the people of india having solomonly resoilve the constitue into <br>sovergen, socialist ,democratic
